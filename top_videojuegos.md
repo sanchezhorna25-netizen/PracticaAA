@@ -1,5 +1,4 @@
-TOP VIDEOJUEGOS HISTÓRICOS 
-Puesto 1: Por decidir…
-Puesto 2: Por decidir…
-Puesto 3: Por decidir…
-
+TOP VIDEOJUEGOS HISTÓRICOS
+Puesto 1: Halo
+Puesto 2: Oblivion
+Puesto 3: Dead Space
